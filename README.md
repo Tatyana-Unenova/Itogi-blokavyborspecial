@@ -1,1 +1,0 @@
-# Itogi-blokavyborspecial
